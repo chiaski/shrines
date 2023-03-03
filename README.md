@@ -1,0 +1,2 @@
+# shrines
+Internet ritual
